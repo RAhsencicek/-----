@@ -1,1 +1,1 @@
-# -----
+# VERİ MADENCİLİĞİ LAB ÇÖZÜMLERİ 
